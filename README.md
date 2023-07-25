@@ -17,6 +17,8 @@ Deutschsprachige Fassung weiter unten.
 ## Personal Stuff
 
 * UE Megaboom!
+* MCH Badge
+* SD Cards
 
 ## ENGLISH
 
