@@ -19,6 +19,7 @@ Deutschsprachige Fassung weiter unten.
 * UE Megaboom!
 * MCH Badge
 * SD Cards
+* Buffs vs c3staub
 
 ## ENGLISH
 
